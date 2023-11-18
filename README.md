@@ -4,7 +4,7 @@ Perkenalkan nama saya **Dena Indiarto Permadi**.
 
 Saya seorang mahasiswa dari jurusan Teknik Informatika di Universitas Mataram
 
-Untuk berkenalan denganku, silakan ikuti akun [Linkedin]([https://www.linkedin.com/in/gilang-adhan/](https://www.linkedin.com/in/dena-indiarto-permadi-74436126a/)) ya.
+Untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/dena-indiarto-permadi-74436126a/) ya.
 
 <p align="left">
   <a href=#>
